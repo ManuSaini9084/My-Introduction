@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **manusaini22092003@gmail.com**
 
-- 📄 Here's my resume https://drive.google.com/file/d/1ZkgbG2vB4tmjGvLpHDCVtXEsQ9Irhghx/view
+- 📄 Here's my resume https://drive.google.com/file/d/1Bo8zzeB6RgmGdITmQliElgXRNhJySqFw/view?usp=sharing
 <h3 align="center">Connect with me:</h3>
 <p align="center">
   <a href="https://www.linkedin.com/in/manu-saini-840515215/" target="blank">
